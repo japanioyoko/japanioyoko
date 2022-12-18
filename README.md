@@ -1,1 +1,1 @@
-# lapanioyoko
+# japanioyoko
